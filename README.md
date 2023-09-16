@@ -1,0 +1,2 @@
+# FUFA
+REG RU BLOG
